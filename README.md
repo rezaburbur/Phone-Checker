@@ -1,7 +1,7 @@
 # Checking Account at Telegram By phone number
 
 
-🦠 YouTube👣:: (https://www.youtube.com/watch?v=bL6s6uz_KkE&t)
+🦠 YouTube👣:: (https://youtu.be/bL6s6uz_KkE)
 **********************************************************
 
 🔥 Github🗣:: (https://www:github.com/erfan4lx)
